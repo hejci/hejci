@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Miluju svůj život
-Pivo piju děti biju
+Ženy mlátím děti klátím
